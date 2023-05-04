@@ -1,0 +1,1 @@
+Lindorm is a nickname that I took from a cartoon. It was my favorite character. Anywho, I'm interested in music kinda programming software etc. And I'm still trying to discover myself so you know, with the time, this page will get bigger🤷
